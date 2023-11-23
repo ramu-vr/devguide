@@ -10,4 +10,9 @@ Issues and triaging
    labels
    github-bpo-faq
    triage-team
-   sudjfdiuiofjskfdhkjsndhndfsn.kln
+   sudjfdiuiofjskfdhkjsndhndfsn.klsdkfln
+   sdfjsjfkjfkldsj
+   skjskfdjksj
+   sdjkfsdguj
+   sdkjfksfk
+   safnksnmszmc
